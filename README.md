@@ -1,4 +1,4 @@
-selamat datang di program ai buat saya
+selamat datang di program ai buatan saya
 
 untuk melihat preview silahkan kunjungi link berikut ini
 
